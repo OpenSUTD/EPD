@@ -30,8 +30,10 @@ EPD Pillar Dialogue will be held once every term (as much as schedules permit).
 - Govt/SG-based large organisation
 
 #### Planning
-- Feel free to contact Wei Ying @finalenote on telegram if you would like to listen to the sharing of any specfic alumni/alumni from any specfic areas.
+- Feel free to contact Wei Ying ```@finalenote``` on telegram if you would like to listen to the sharing of any specfic alumni/alumni from any specfic areas.
 
 Useful Resources
 -------------------
 - [Supplier List for EPD Projects](https://sutdapac-my.sharepoint.com/:x:/g/personal/epd_rep_sutd_edu_sg/ESRZQtGx71pLqurk7Gz4h14BJQLqnxSvOEfcbw034Q-o9g?e=Y7SAPT)
+
+
