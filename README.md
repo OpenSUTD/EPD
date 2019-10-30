@@ -28,7 +28,7 @@ EPD Pillar Dialogue will be held once every term (as much as schedules permit).
 - Govt/SG-based large organisation
 
 ##### Planning
-- Feel free to contact Wei Ying ```@finalenote``` on telegram if you would like to listen to the sharing of any specfic alumni/alumni from any specfic areas.
+- Feel free to contact Wei Ying ```@finalenote``` on telegram if you are an EPD alumni and would like to come down to share, or if you are a student and you would like to help out in this event.
 
 Useful Resources
 -------------------
