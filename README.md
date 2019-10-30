@@ -36,6 +36,6 @@ Useful Resources
 
 Contact
 -------
-Contact us ```epd@rep.sutd.edu.sg```
+Contact us at ```epd@rep.sutd.edu.sg```
 
 
