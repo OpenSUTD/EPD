@@ -25,7 +25,7 @@ EPD Pillar Dialogue will be held once every term (as much as schedules permit).
 - Healthcare
 - Product Engineer
 - R&D
-- Govt/SG-based large organisation
+- Govt/SG-based Government linked Companies
 
 ##### Planning
 - Feel free to contact Wei Ying ```@finalenote``` on telegram if you are an EPD alumni and would like to come down to share, or if you are a student and you would like to help out in this event.
