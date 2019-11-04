@@ -10,7 +10,7 @@ Current Initiatives
 -------------------
 ### Pillar Dialogue
 EPD Pillar Dialogue will be held once every term (as much as schedules permit).
-
+- Progress is still ongoing for the pillar dialogue.
 
 
 
