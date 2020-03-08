@@ -30,6 +30,9 @@ EPD Pillar Dialogue will be held once every term (as much as schedules permit).
 ##### Planning
 - Feel free to contact Wei Ying ```@finalenote``` on telegram if you are an EPD alumni and would like to come down to share, or if you are a student and you would like to help out in this event.
 
+##### Landing Page
+[Landing Page](Events/AlumniSharingSession2020/AlumniSharingSession2020.md)
+
 Useful Resources
 -------------------
 - [Supplier List for EPD Projects](https://sutdapac-my.sharepoint.com/:x:/g/personal/epd_rep_sutd_edu_sg/ESRZQtGx71pLqurk7Gz4h14BJQLqnxSvOEfcbw034Q-o9g?e=Y7SAPT)
