@@ -6,7 +6,8 @@ The EPD Alumni Sharing Session 2020 will be going online on **25/3/2020 (Wednesd
 
 Name | Biography
 ------------ | -------------
-Loy Shi Wei| Shi Wei graduated from EPD, Electrical Engineering track in 2018, and is currently working at Murata Electronics Singapore. Murata Electronics is a Japanese component manufacturer. He handles sales, marketing and applications, and is currently in charge of the ASEAM and India region. Hence, he would like to share his thoughts so far on working in the electronics industry. 
+Loy Shi Wei 
+![ShiWei](Events/AlumniSharingSession2020/88302177_133282598094003_9118223119960506368_n.jpg)| Shi Wei graduated from EPD, Electrical Engineering track in 2018, and is currently working at Murata Electronics Singapore. Murata Electronics is a Japanese component manufacturer. He handles sales, marketing and applications, and is currently in charge of the ASEAM and India region. Hence, he would like to share his thoughts so far on working in the electronics industry. 
 Dexter Chew | Content column 2
 
 
