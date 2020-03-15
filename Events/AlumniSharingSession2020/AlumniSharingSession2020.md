@@ -1,8 +1,8 @@
 # EPD Alumni Sharing Session 2020
-The EPD Alumni Sharing Session 2020 will be going online on **25/3/2020 (Wednesday), from 6.30pm to 9pm** where current EPD and freshmore students are able to ask EPD Alumni questions about life after graduation. This event will be held through the use of Microsoft Teams. For interested students, do RSVP [here](https://forms.office.com/Pages/ResponsePage.aspx?id=drd2NJDpck-5UGJImDFiPaaZscqkvmVKuDIKVv5B4edUMThNSTQyNDVKOE5FTTZISDNWMDAzUEcxRi4u). 
+This year's edition is going online! EPD and Freshmore students will be able to interact with EPD Alumni, and know more about their experiences beyond graduation. This event will be held through Microsoft Teams, on March 25th (Week 9, Wednesday), from 6:30pm to 9:00pm. RSVP  [here](https://forms.office.com/Pages/ResponsePage.aspx?id=drd2NJDpck-5UGJImDFiPaaZscqkvmVKuDIKVv5B4edUMThNSTQyNDVKOE5FTTZISDNWMDAzUEcxRi4u). 
 
 
-## Participating Alumni (Awaiting further updates)
+## Participating Alumni (More to be confirmed!)
 
 Name | Biography
 :------------: | -------------
