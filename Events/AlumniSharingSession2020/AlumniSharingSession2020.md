@@ -1,5 +1,5 @@
 # EPD Alumni Sharing Session 2020
-The EPD Alumni Sharing Session 2020 will be going online on **25/3/2020 (Wednesday), from 6.30pm to 9pm**. This event will be held through the use of Microsoft teams, which will be disseminated to SUTD EPD and Freshmore students through the school's mailing list closer to the date.    
+The EPD Alumni Sharing Session 2020 will be going online on **25/3/2020 (Wednesday), from 6.30pm to 9pm** where current EPD and freshmore students are able to ask EPD Alumni questions about life after graduation. This event will be held through the use of Microsoft Teams. For interested students, do RSVP [here] (https://forms.office.com/Pages/ResponsePage.aspx?id=drd2NJDpck-5UGJImDFiPaaZscqkvmVKuDIKVv5B4edUMThNSTQyNDVKOE5FTTZISDNWMDAzUEcxRi4u). 
 
 
 ## Participating Alumni (Awaiting further updates)
