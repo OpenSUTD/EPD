@@ -2,7 +2,7 @@
 This year's edition is going online! EPD and Freshmore students will be able to interact with EPD Alumni, and know more about their experiences beyond graduation. This event will be held through Microsoft Teams, on March 25th (Week 9, Wednesday), from 6:30pm to 9:00pm. RSVP  [here](https://forms.office.com/Pages/ResponsePage.aspx?id=drd2NJDpck-5UGJImDFiPaaZscqkvmVKuDIKVv5B4edUMThNSTQyNDVKOE5FTTZISDNWMDAzUEcxRi4u) by March 23rd.  
 
 
-## Participating Alumni (More to be confirmed!)
+## Participating Alumni
 
 Name | Biography
 :------------: | -------------
